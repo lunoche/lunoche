@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @lunoche / luna
+- 👀 I’m interested in designing great experiences & learning how to make fun and cool things
+- 🌱 I’m currently learning how to improve my project management, design, and writing skills
+- 💞️ I’m looking to collaborate on products and games that make the world a better place & help marginalized communities ✨
+- 📫 How to reach me: @grungegamer_ or grungegamer.wordpress.com
