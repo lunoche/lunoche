@@ -1,7 +1,7 @@
-<img src="https://64.media.tumblr.com/e0b1f329d415a879f52e1ffc0b90e828/661f0039256ec6e8-28/s1280x1920/80a9aa93ce396d6c232ce0a85aaa29ba4e99a749.png" width="300">
+<center><img src="https://64.media.tumblr.com/e0b1f329d415a879f52e1ffc0b90e828/661f0039256ec6e8-28/s1280x1920/80a9aa93ce396d6c232ce0a85aaa29ba4e99a749.png" width="200">
 
 Hi, I'm Luna.
 
 I’m interested in designing great experiences & learning how to make fun and cool things.
 
-<img src="https://64.media.tumblr.com/e6bad23d63c982459b194c6497bc5ddc/661f0039256ec6e8-ef/s1280x1920/2ec411ac2706803442ede9e54d6cb9679370d1d4.png" width="300">
+<img src="https://64.media.tumblr.com/e6bad23d63c982459b194c6497bc5ddc/661f0039256ec6e8-ef/s1280x1920/2ec411ac2706803442ede9e54d6cb9679370d1d4.png" width="200">
